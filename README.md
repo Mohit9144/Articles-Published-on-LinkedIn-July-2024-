@@ -6,3 +6,5 @@ https://www.linkedin.com/posts/mohit-patil-6908a8228_ai-artificialintelligence-m
 https://www.linkedin.com/pulse/unveiling-mystery-large-language-models-llms-mohit-patil-gqhpf
 
 https://www.linkedin.com/posts/mohitramdaspatil_quantumcomputing-futureoftech-innovation-activity-7219381874899505154-5dgn?utm_source=share&utm_medium=member_desktop
+
+https://www.linkedin.com/pulse/redefining-reality-rise-arvr-its-impact-industries-mohit-patil-bgxzf
