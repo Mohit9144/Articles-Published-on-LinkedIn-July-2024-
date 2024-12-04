@@ -10,3 +10,5 @@ https://www.linkedin.com/posts/mohitramdaspatil_quantumcomputing-futureoftech-in
 https://www.linkedin.com/pulse/redefining-reality-rise-arvr-its-impact-industries-mohit-patil-bgxzf
 
 https://www.linkedin.com/pulse/nanotechnology-ai-future-innovatio-mohit-ramdas-patil-nx3kf
+
+https://www.linkedin.com/pulse/role-snowflake-modern-data-science-mohit-ramdas-patil-xu0ef
